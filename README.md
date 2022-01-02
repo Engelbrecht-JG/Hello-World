@@ -5,7 +5,7 @@ I'm new to coding, and especially new to GitHub. But, I am ready to take the nex
 I look forward to continue to learn from this great platform and wonderful community!
 
 ## About me: 
-I am a young, radical, social economist. My specialities are policy, macroeconomics, public economics, and community livelihoods. 
+I am a social economist. My specialities are policy, macroeconomics, public economics, and community livelihoods. 
 My motivations are simple: through all that I do, I just want to help make the world a better place.
 
 Also, I love music, pets, sunny weather, and good vibes!
